@@ -1,1 +1,1 @@
-auto clicker!
+hacks!
